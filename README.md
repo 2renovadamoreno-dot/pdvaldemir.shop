@@ -1,0 +1,1 @@
+# pdvaldemir.shop
